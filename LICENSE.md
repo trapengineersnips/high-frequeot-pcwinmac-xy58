@@ -1,4 +1,4 @@
-# 
+# نخبة high-frequency trading bot امتدادات لـ Mac OS | VIP high-frequency trading bot امتدادات لـ PC Windows. مع تحليل البيانات التاريخية و تحسين المسار — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
